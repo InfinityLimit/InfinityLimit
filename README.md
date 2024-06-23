@@ -1,5 +1,5 @@
 - Infinity Limit
-- 中文/English/日本語(know a little)
+- 中文/English/日本語 (know little)
 - a pegasus mare
 - freshpony in NJU
 - interested in mathematics, physics, astronomy, music, language, font... but only know a little
